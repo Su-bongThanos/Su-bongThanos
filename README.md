@@ -18,3 +18,15 @@ HI, call me Zelric!! or Harvey  Thanos / Su-bongThanos / hyunseo
 Im a really freaky person okiay.. im really weird, if comfy i love u
 sometimes i have issues of trusting,and angriness. Im also shy of interacting w everyone!! idk how to start a conversation, i usually just go silent or listen
 alsoo, please dont take some of my rude jokes. im not trying to hurt anyone - i can also be sarcastic 
+
+
+♪ ONLINE DAD; cool if u wanna be my child. taken
+ ✧ I AM A DEMIFLUID! (Demiboy genderfluid) i go by He/they, she is a little fine for me. or not
+ 
+ . minor , Adults pls be mindful/iwc
+
+ FANDOMS IM IN: Bigbang , Squid game, Guts and blackpowder , Countryhumans , hetalia , Alnst , the mimic(roblox) , Satw , Napoleon wars , etc. (too lazy)
+
+ .
+
+ **THIS ISN'T DONE YET.. ITS MY FIRST TIME CREATING REPO! ty for reading**
