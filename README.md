@@ -3,7 +3,7 @@
 
 ## Intro
 
-HI, call me Zelric!! or Harvey  Thanos / Su-bongThanos / hyunseo 
+HI, call me Zelric!! or Harvey / Thanos / Zen / hyunseo 
 
 ..
  (⁠ ⁠◜⁠‿⁠◝⁠ ⁠)
@@ -17,7 +17,12 @@ HI, call me Zelric!! or Harvey  Thanos / Su-bongThanos / hyunseo
 
 Im a really freaky person okiay.. im really weird, if comfy i love u
 sometimes i have issues of trusting,and angriness. Im also shy of interacting w everyone!! idk how to start a conversation, i usually just go silent or listen
-alsoo, please dont take some of my rude jokes. im not trying to hurt anyone - i can also be sarcastic 
+alsoo, please dont take some of my rude jokes. im not trying to hurt anyone - i can also be sarcastic
+sometimes im very confusing sorrey
+
+
+.
+. i like all ships but sometimes not, pls respect
 
 
 ♪ ONLINE DAD; cool if u wanna be my child. taken
