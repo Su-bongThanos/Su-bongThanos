@@ -3,7 +3,7 @@
 
 ## Intro
 
-HI, call me Zelric!! or Harvey / Thanos / Zen / hyunseo 
+HI, call me Zelric!! or Harvey / zenir / Zen / hyunseo 
 
 ..
  (⁠ ⁠◜⁠‿⁠◝⁠ ⁠)
