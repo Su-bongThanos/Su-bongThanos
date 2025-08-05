@@ -25,8 +25,8 @@ sometimes im very confusing sorrey
 . i like all ships but sometimes not, pls respect
 
 
-♪ ONLINE DAD; cool if u wanna be my child. taken
- ✧ I AM A DEMIFLUID! (Demiboy genderfluid) i go by He/they, she is a little fine for me. or not
+♪ ONLINE DAD; cool if u wanna be my child. taken by my perfect beautiful husband.
+ ✧ I AM A DEMIFAUN! (demiboy & genderfaun) i go by He/they, pls dont call me "she" or any feminines to me. I dont wanna be misgendered anymore, dni homophobics
  
  . minor , Adults pls be mindful/iwc
 
